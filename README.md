@@ -17,8 +17,6 @@ Alt-H6
 
 *** HELlo ***
 
-|sub 1| sub 2| sub 3|
-| --- | ---  |  --- |
-| eng|pbi|math|
-phy|che|hindi
+![alt text](![image](https://github.com/user-attachments/assets/2e11bf36-2830-4ae4-8dcb-1487c237228c)"image 1")
+
 
