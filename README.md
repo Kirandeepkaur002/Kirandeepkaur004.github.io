@@ -9,11 +9,6 @@
 |------|
 
 
-
-
-
-
-
 |_*DAY*_|_*DATE*_|_*ABOUT*_|
 | -- | -- | -- |
 |**1**|July10,24|On DAY 1,we visited the auditorium and listen to incharge of **TAC** and director of STEP GNE **Dr.ARVIND DHINGRA**.After that,we listened we listened to Dean student welfare **Dr.PARMINDER SINGH** and last we interacted with COE **DR.HS RAI**.We had a memorable day at the college.|
