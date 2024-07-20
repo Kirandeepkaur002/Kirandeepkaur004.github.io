@@ -4,9 +4,11 @@
 ### Academic Year 2024-25
 ### Semester-1
 
-| On the very first day of our college, we first visited GURUDWARA SAHIB of the college and get a chance to know alot about the college.We also get to know about many contributions of the college in various sectors.We had very good opportunities to listen to dignitaries invited by the college. |
+|- On the very first day of our college, we first visited GURUDWARA SAHIB of the college and get a chance to know alot about the college.We also get to know about many contributions of the college in various sectors.We had very good opportunities to listen to dignitaries invited by the college. -|
 
-|*_DAY_*|*_DATE_*|*_ABOUT_*|
+
+
+|_*DAY*_|_*DATE*_|_*ABOUT*_|
 | -- | -- | -- |
 |**1**|July10,24|On DAY 1,we visited the auditorium and listen to incharge of **TAC** and director of STEP GNE **Dr.ARVIND DHINGRA**.After that,we listened we listened to Dean student welfare **Dr.PARMINDER SINGH** and last we interacted with COE **DR.HS RAI**.We had a memorable day at the college.|
 |**2**|July11,24|On DAY 2 of induction program,we were headed to classrooms for attending classes.Firstly,we attended _MATHEMATICS_ class in F-109 and had a nice interaction with the teacher.After mathematics class,we attended second class of _UHV_ in F-114 where we learnt many things on HUMAN VALUES and get a knowledge on HAPPINESS and EXCITEMENT.|
