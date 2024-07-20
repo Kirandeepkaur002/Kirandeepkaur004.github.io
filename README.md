@@ -4,7 +4,7 @@ Hi everyone, I have successfully completed the **_Excel for Beginners_** course 
 
 Here's my certificate
 
-![alt text](KirandeepKaur(1)0.jpg "image 1")
+![alt text](https://olympus.mygreatlearning.com/courses/12583/certificate "image 1")
 
 
 
