@@ -1,11 +1,11 @@
 # Kirandeepkaur002.github.io
 
-Myself **_KIRANDEEP KAUR._**
-I have successfully completed the **Excel for Beginners_** course offered by Great Learning Academy.
+# INDUCTION PROGRAM REPORT
+### Acaademic Year 2024-25
+Semester-1
+---
+|On the very first day of our college,we first visited GURUDWARA SAHIB 
 
-I am uploading my certificate here.
-
-![alt text](Kirandeep Kaur.pdf)
 
 
 
