@@ -20,5 +20,5 @@ Alt-H6
 |sub 1| sub 2| sub 3|
 | --- | ---  |  --- |
 | eng|pbi|math|
-
+phy|che|hindi
 
