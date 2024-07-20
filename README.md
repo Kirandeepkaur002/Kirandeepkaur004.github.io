@@ -1,6 +1,6 @@
 # Kirandeepkaur002.github.io
 
-Hi all, I have successfully completed the **_Excel for Beginners_** course offered by Great Learning Academy.
+Hi everyone, I have successfully completed the **_Excel for Beginners_** course offered by Great Learning Academy.
 
 Here's my certificate
 
