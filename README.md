@@ -9,7 +9,7 @@
 
 |*_DAY_*|*_DATE_*|*_ABOUT_*|
 | -- | -- | -- |
-|**1**|On DAY 1,we visited the auditorium and listen to incharge of **TAC** and director of STEP GNE **Dr.ARVIND DHINGRA**.After that,we listened we listened to Dean student welfare **Dr.PARMINDER SINGH** and last we interacted with COE **DR.HS RAI.We had a memorable day at the college.|
+|**1**|On DAY 1,we visited the auditorium and listen to incharge of **TAC** and director of STEP GNE **Dr.ARVIND DHINGRA**.After that,we listened we listened to Dean student welfare **Dr.PARMINDER SINGH** and last we interacted with COE **DR.HS RAI**.We had a memorable day at the college.|
 |**2**|On DAY 2 of induction program,we were headed to classrooms for attending classes.Firstly,we attended _MATHEMATICS_ class in F-109 and had a nice interaction with the teacher.After mathematics class,we attended second class of _UHV_ in F-114 where we learnt many things on HUMAN VALUES and get a knowledge on HAPPINESS and EXCITEMENT.|
 |**3**|On DAY 3 of induction program,we initially interacted with **Dr. RANDHIR SINGH** who instructed about github app and helped the students to make their github accounts.We also listened to prestigious thoughts of **Dr.PYAARE LAL**.After that,we had a great interaction with **Mr.SONY GOYAL** who gave their views to be successful in life.At the end of the day, **Mr.PANCHAM** delievered us a beautiful message.|
 |**4**|On DAY 4,we had various activities related to quantitative aptitude and English vocabulary.Teams of 4-4 members were made and there were competitions between the teams.We learnt many news words and enhance our knowledge.We had group discussion and also had a lot of enjoyment.|
