@@ -5,7 +5,7 @@ I have successfully completed the **Excel for Beginners_** course offered by Gre
 
 I am uploading the certificate here.
 
-![alt text](Kirandeep Kaur.pdf="image 1")
+![alt text](Kirandeep Kaur.pdf)
 
 
 
