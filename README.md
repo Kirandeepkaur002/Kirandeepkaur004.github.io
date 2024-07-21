@@ -5,10 +5,6 @@
 ### Semester-1
 
 | On the very first day of our college, we first visited GURUDWARA SAHIB of the college and get a chance to know alot about the college.We also get to know about many contributions of the college in various sectors.We had very good opportunities to listen to dignitaries invited by the college. |
-|---|
-
-
-
 
 | _DAY_ | _DATE_ | _ABOUT_ |
 | -- | -- | -- |
