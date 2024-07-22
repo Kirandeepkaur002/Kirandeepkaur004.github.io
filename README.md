@@ -15,10 +15,8 @@
 |**5**|July16,24|On DAY 5,we had no program in the auditorium.We just had two classes again.Firstly,we attended _MATHEMATICS_ class and did many questions related to integration.We had a nice talk to the teacher.After that, we had a break for 15 minutes.After the break,we attended second class of _UHV_ in the workshop hall.We also given an English proficiency test.
 |**6**|July17,24|On sixth day, we had a peer interaction about college in F-107 room.There our senior taught all about the college.After peer interaction, we attended _MATHEMATICS_ class in F-108-A room.Then we had a break of about 45 minutes.After the break,we went to auditorium and we were instructed about **ANO-NCC** by **Dr.HARWINDER SIR**.We were given knowledge about NCC and inspire us to join.After NCC session, we interacted with **Er. JASVIR SINGH GREWAL** who is a coordinator of **NSS**.Sir gave a lot of knowledge about NSS and enhanced the knowledge of students.|
 |**7**|July18,24|DAY 7 was full of enjoyment along with studying _SCIENCE_.In the auditorium,we first grasped a lot of knowledge about **PLACEMENTS and SOFT SKILLS** from **Er.KANWARDEEP GREWAL** mam.After that,we learnt science using live experiments by **IAPT INCHARGE-JASWINDER SINGH**.We had a fabulous experience there.After the auditorium,we went to _CSE_ department.There we were interacted with the teachers and alloted a mentor.We had nice talk to all the teachers.| 
-
-
-
-
+|**8**|July22,24|On DAY 8,we again visited to the auditorium for listening to great speakers of the day.Firstly , **Dr. S.B.Singh** motivated us a lot.Then we wrote many things about us on a paper as told by the sir.It gave me a great pleasure to write about myself on a sheet.After the first speaker, the second speaker **Dr. Pushpinder Singh** came and gave us a motivational speech.After that we had break for 1 hour.After the break, the next speaker **Mrs. Sangeeta** mam came and gave us a beautiful lesson to save our environment and nature which is being ruined and polluted by us. |
+|**9**|July23,24|On DAY 9,we attended our first _Chemistry_ class.We were taught the basics of Chemistry and had a nice interaction with the teacher.After chemistry class, we had _PEER INTERACTION_ in the auditorium for one and half hour.Then we had a break.After the break,we went to auditorium to interact with **Dr.Parminder Singh** for instructions about _PMS_ scholarship.
 
 
 
